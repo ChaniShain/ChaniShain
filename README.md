@@ -1,4 +1,4 @@
 
-🚀 Software Developer  |  🎵 Music & Code
+🚀 Software Developer 
 
  
